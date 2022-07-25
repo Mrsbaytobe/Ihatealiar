@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @Mrsbaytobe
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 👋 Hi, I’m @Mrsbaytobe 
+- 👀 I’m interested in sucking dick 
+- 🌱 I’m currently learning how to suck dick 
+- 💞️ I’m looking to collaborate on a video to suck dick 
+- 📫 How to reach me 1800dicksucker
 
 <!---
 Mrsbaytobe/Mrsbaytobe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
